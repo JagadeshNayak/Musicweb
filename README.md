@@ -1,0 +1,1 @@
+Dive into a world of music with just one click! Our web app lets you explore six hand-picked songs, perfect for any mood.  All accompanied by a stunning background image to set the scene. Escape the ordinary, hit play today!
